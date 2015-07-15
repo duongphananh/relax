@@ -1,0 +1,19 @@
+NGHE CHỪNG CĂNG QUÁ CÁC BỐ Ạ
+EM ĐỊNH NĂM SAU CƯỚI, CHẮC THÔI!
+
+1. Tháng trước vợ cho một triệu tiêu vặt, cuối tháng hỏi tiền tiêu những khoản nào rồi. Mua bộ đồ lót cho vợ hết 500k, mua cây thuốc lá cho bố vợ hết 200k, đổ xăng hết 150k, cắt tóc hết 50k, mua hai lon Coca hết 40k, còn 60k tiêu gì ko tài nào nhớ nổi. Vợ nghe thế liền nổi trận lôi đình, bắt tôi đi lau nhà. Tôi hỏi tại sao thì vợ quát:“ Ông đem 60k đi chơi gái rồi phải ko?”
+2. Đi du lịch với vợ, tối ngủ khách sạn, điện thoại reo ko ngừng, đủ các loại massage tẩm quất. Vợ tôi điên tiết nói: “Ranh con, định cướp nghề của chị mày hả?”
+3. Vào nhà vệ sinh ko cần đóng cửa, đi tắm ko cần mang theo quần áo, muốn xì hơi lúc nào cũng đc, tóm lại vợ tôi ko coi tôi là người khác giới nữa. Nhiều lúc tủi lắm các bác ạ.
+4. Sau khi kết hôn bốn câu hỏi lớn nhất của phụ nữ là: đẻ thưởng hay đẻ mổ, sinh một hay sinh hai, làm sao để vừa lòng mẹ chồng, giải quyết thế nào nếu kẻ thứ ba xuất hiện.
+5. Nghe mọi người bảo trước và sau khi cưới, tính nết anh chồng hoàn toàn khác hẳn. Tôi may mắn lấy đc anh chồng trước sau như một. Bất kể lễ tết sinh nhật gì, anh ta cũng chưa từng tặng quà cho tôi. Nhưng tôi giữ lương anh ta nên thích gì là mua thôi.
+6. Anh em tuyệt đối ko đc để thẻ ngân hàng lọt vào tay chị em. Hối ko kịp đấy. Nhớ ngày xưa mới cưới vợ tôi lúc nào cũng “anh yêu”, “chồng yêu”, ko bao giờ tức giận, chiều chuộng tôi cả ngày lẫn đêm. Trong lúc nhất thời mất cảnh giác tôi đã giao thẻ ngân hàng cho cô ấy. Sau đó chỉ trong vòng ba tháng, cô ấy bảo tôi cút 382 lần, mắng tôi là lợn 276 lần, 194 lần bảo tôi đi chết đi, 87 lần quát “Tiểu tử nhà ngươi dám tạo phản hả”, 39 lần từ chối thẳng thừng khi tôi xin tiền tiêu vặt.
+7. Con trai tôi hỏi cuộc sống hôn nhân là như thế nào, tôi bèn lấy ipod của nó, xoá hết những bài hát trong đó, chỉ để lại một bài, rồi bật chế độ chạy liên tục cho đến khi hết pin thì thôi.
+8. Trước khi cưới, đi làm về thấy trong nhà sáng đèn thì lòng chợt nhẽ bẫng. Sau khi cưới, làm về thấy nhà vẫn sáng đèn thì hai chân nặng như đeo chì.
+9. Trước khi cưới nàng bảo: “Tối nay anh rửa bát thì em sẽ chiều anh chút.” Sau khi cưới nàng nói: “Tối nay anh rửa bát thì em sẽ tha cho anh.”
+10. Ngồi nhậu với anh em, vợ gọi giục về trông con, bực quá mới quát: “Tôi đang bận công chuyện, cô đừng có lằng nhằng!” Anh em vỗ tay khen hay. Về đến nhà bèn lao vào ôm chân vợ: “Vợ ơi anh biết lỗi rồi, tại anh em ngồi đấy, em cho anh ra oai một tí. Tuần này việc nhà anh lo tất, đừng giận em nhé.”
+11. Quay về cuộc sống học sinh, tan ca là về nhà, đầu tháng lĩnh tiền tiêu vặt, cuối tháng kê khai chi tiết, mà thực chất còn nghèo hơn cả học sinh. Lau nhà nấu cơm, trông con đi chợ, cái gì cũng biết. Nếu chẳng may bị đuổi việc có thể đi làm bảo mẫu ngay đc.
+12. Hai vợ chồng cãi nhau, chồng tức quá bảo: “Tôi mà về cái nhà này nữa thì tôi là con cô!” Nửa tiếng sau, anh chồng tay xách nách mang gõ cửa: “Mama, mở cửa, mua rau về rồi đây.”
+13. Có thêm một bà mẹ nhưng lại ko đc đối xử như một đứa con.
+14. Hồi trước nhà tôi nuôi một con chó, địa vị gia đình từ cao xuống thấp là vợ- con- chó- tôi. Sau con chó ốm qua đời, nhà lại nuôi một con mèo, lần này địa vị gia đình trở thành vợ- con- mèo- tôi.
+15. Yêu nhau tám năm trời, vượt qua muôn vàn thử thách khó khăn cuối cùng cũng đc bên nhau. Mỗi ngày xong việc là tôi lao về nhà ngay, việc nhà tôi lo tất, cũng ko lỡ để vợ đi làm, sau này có con tôi sẽ thuê người giúp việc chăm sóc nó, vợ tôi chỉ có trách nhiệm tận hưởng hạnh phúc mà thôi… Muỗi cắn đau quá, ko bịa đc nữa rồi, thôi đành mò về nhà vậy.
+16. Muốn cưới thì cứ cưới, muốn độc thân thì cứ độc thân, đằng nào đến cuối cùng các người cũng hối hận cả thôi.
